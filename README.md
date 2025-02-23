@@ -1,4 +1,4 @@
-# 💫 Hi, I'm Inès, let's know each other:
+# 💫 Hi, I'm Inès, let's know each other !
 🔭 I'm currently working on a pregnancy tracker website.<br>👯 I'm looking for an internship to practice my skills !<br>⚡ I'm in love of Moriarty The Patriot and Love and deep space !!!!
 
 
